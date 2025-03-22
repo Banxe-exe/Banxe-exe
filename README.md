@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Banxe-exe
-- 👀 I’m interested in games, digital art, and gemes.
+- 👀 I’m interested in games, digital art, and terror games.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on everything!
 - 📫 How to reach me ...
